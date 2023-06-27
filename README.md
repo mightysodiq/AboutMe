@@ -4,7 +4,7 @@
 
 - 👋 Hi, I’m @Mightysodiq
 - 👀 I’m interested in solving problem using software
-- 🌱 I’m currently learning the new frameworks
+- 🌱 I’m currently learning the new Updates
 - 💞️ I’m looking forward to collaborate with people who solve real life problems
 - 📫 How to reach me  (E-mail: Muritalasodiqbab1@gmail.com, +2348101904606)
 
